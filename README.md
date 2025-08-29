@@ -2,4 +2,4 @@
 
 - 🔭 Hoje eu trabalho controlando o estoque- apontador.
 - 🌱 estudando advertisements ADS
-- Durante 2 anos e meio, fiz guardinha local onde treinam jovens para o mercado, lá fiz envolvendo adm.
+- Durante 2 anos e meio, fiz guardinha local onde treinam jovens para o mercado de trabalho, lá fiz cursos envolvendo adm.
